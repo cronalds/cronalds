@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning web development; currently hold certificate IV but I'm halfway through my diploma.
 - 💞️ I’m looking to collaborate on mainly tools and systems; but only for money, to be honest; I'll just work on my own stuff for free.
 - 📫 How to reach me: astrangerman95@gmail.com
-- ⚡ Fun fact: I am disdainfully poor but wish to be as rich as Scrooge McDuck; if I don't have a money silo by 2030 then I may as well not bother.
+- ⚡ Fun fact: I am disdainfully poor but wish to be as rich as Scrooge McDuck; if I don't have a money bin by 2030 then I may as well not bother.
